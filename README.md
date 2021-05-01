@@ -1,19 +1,19 @@
-# yva#0001
+#🔵 yva#0001
 
 
 discord is above.
 
 
-# stuff i do
+#🔵 stuff i do
 
-+ i sometimes make bots on discord, some sites, etc
++ i sometimes make roblox scripts, guis, and other stuff.
 
 - i play games like csgo, rust, etc..
 
-+ people call me annoying, which is correct.
++ 
 
 
-# End
+#🔵 End
 
 
 goodbye!
